@@ -1,1 +1,1 @@
-# Vizitkarte ►PABEIGTS◄
+# Vizitkarte
